@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Kanika pal
 - 👀 I’m interested in ...
-- 🌱 I’m currently BBA Student 
+- 🌱 I’m currently MBA Student 
 - 💞️ I’m looking to collaborate on ...
 - 📫 kanika pal - Linkdin / twitter 
 - kaniika2772002 - instagram
